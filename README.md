@@ -1,2 +1,0 @@
-# BarbaraVaquieCV
-Currículum Vitae
